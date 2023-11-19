@@ -1,0 +1,1 @@
+# sayisala3.hafta2.odev
